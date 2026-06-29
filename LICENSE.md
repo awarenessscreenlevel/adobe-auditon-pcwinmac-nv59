@@ -1,4 +1,4 @@
-# 
+# Élite Adobe Audition herramientas para Mac OS | Instantáneo Adobe Audition herramientas para PC Windows. Con incrustación de pantalla verde y efectos de partículas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
